@@ -1,5 +1,4 @@
-- 👋 Hi, I’m @CoderGeek69
-- 👀 I’m interested in "air", kinda aerodynamics stuff
+- 👋 Hi, I’m Sambit Mishra!
 - 🌱 I’m currently learning econometrics
 - 💞️ I’m looking to collaborate on ANYTHING!
 - 📫 How to reach me linkedin @ https://www.linkedin.com/in/thattechgeek/
